@@ -1,4 +1,4 @@
-# 
+# Officiel dexscreener sniper bot modèles pour Mac OS | Natif dexscreener sniper bot modèles pour PC Windows. Avec détection de nouveaux jetons et écouteurs d'événements — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
